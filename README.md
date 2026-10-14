@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-FAHS970104MJCRRN07
+FAHS970104MJCRRN07
